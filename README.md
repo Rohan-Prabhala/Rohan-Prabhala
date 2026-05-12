@@ -1,4 +1,14 @@
-## Hi there 👋
+## Hiii I'm I hate my life
+hiii I hate my life whats your name 🤣🤣🤣
+
+was that tuff diddy aura 💀 i think triple t himself is gonna fill my holes now
+
+Also i lwk use github for random stuff like saving text files and stuff but also for private game dev repos as backup
+eventually EVENTUALLY ill make something worth publishing fr
+ill do it eventually at some point in time in the future maybe possibly preferably after the current moment
+what the hell this text editor doesnt have spell check im cooked
+- wasdwasd
+- wasd
 
 <!--
 **Rohan-Prabhala/Rohan-Prabhala** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
